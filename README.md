@@ -12,7 +12,7 @@ Skills: C | C++ | Python  | Now trying  to Be a  Data  Analyst 😶
 
  
 [<img src=' https://img.icons8.com/?size=96&id=ddJXF_L1PvL_&format=png' alt='facebook' height='40'>](https://www.facebook.com/mdjobair.hossan.58)  
-
+https://icons8.com/icon/ddJXF_L1PvL_/facebook
 
 
 
