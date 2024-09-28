@@ -1,4 +1,4 @@
-![I will be a Data Analyst .]( https://media.licdn.com/dms/image/v2/D5616AQEXRr_pylHRsQ/profile-displaybackgroundimage-shrink_350_1400/profile-displaybackgroundimage-shrink_350_1400/0/1727546123340?e=1732752000&v=beta&t=W5NCdf3a7eg2FPi_HGMmkwNxxCVetbL5V7wIgodH-DE)
+![I will be a Data Analyst .](  https://media.licdn.com/dms/image/v2/D5616AQFQVqZwgfsZYA/profile-displaybackgroundimage-shrink_350_1400/profile-displaybackgroundimage-shrink_350_1400/0/1727548380922?e=1732752000&v=beta&t=wEGAzlP72jAjeuUzJaVghJ1SyZasTEkRH5lD4CU357s)
 
 ## Hi there 👋,
 ### Hey I am Jobair Hossan.
